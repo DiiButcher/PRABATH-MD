@@ -4,12 +4,12 @@
 
 <br>
 
-🔮 `Na usake bot yako bro😂 usininyeshee maguy. Dm nikuundie yako kama hujui @0115473229.`
+🔮 `Na usake bot yako bro😂 usininyeshee, wacha ushenzi maguy. Dm nikuundie yako kama hujui @0115473229.`
 
 <br>
  
   <p align="center">  
-  <a href="https://telegra.ph/file/1743544c222ffd613c219.jpg">
+  <a href="[https://telegra.ph/file/1743544c222ffd613c219.jpg](https://drive.google.com/file/d/1GZKngJN3OZMKGCK_etCSUlAuSVWAHypA/view?usp=drivesdk)">
     <img alt="prabath-md" height="300" src="https://telegra.ph/file/1743544c222ffd613c219.jpg">
     
   
