@@ -4,7 +4,7 @@
 
 <br>
 
-🔮 `The main hope of creating this bot is to take full advantage of the WhatsApp and make its work easier.`
+🔮 `Na usake bot yako bro😂 usininyeshee maguy. Dm nikuundie yako kama hujui @0115473229.`
 
 <br>
  
